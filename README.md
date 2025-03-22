@@ -1,9 +1,9 @@
 <p align="center"></p>
 
 <p align="center">
-  <a href="https://link1.com">atabook</a><br>
-  <a href="https://link2.com">Link 2</a><br>
-  <a href="https://link3.com">Link 3</a>
+  <a href="https://brandonworks.atabook.org/">atabook</a><br>
+  <a href="https://rentry.co/brandonsworks">rentry</a><br>
+  <a href="https://eng.pronouns.page/@g">prns page</a>
 </p>
 
 
