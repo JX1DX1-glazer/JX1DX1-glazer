@@ -8,7 +8,7 @@
 
 brandon, beren or any of the names listed in my prnspage
 
-im actually very problematic (no grroming dont worry) so iwvec ^_^" /srs
+toxic asf depending on mood beware
 
 https://github.com/user-attachments/assets/e76e48c0-de71-4c3a-b811-27b31cb80019
 
