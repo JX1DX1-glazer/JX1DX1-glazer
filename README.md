@@ -6,7 +6,9 @@
   <a href="https://en.pronouns.page/@brandonsworks">prns page</a>
 </p>
 
-brandon, beren or any of the names listed in my prnspage
+hi im beren or any of the names in prnspage
+
+i love my husband jx1dx1
 
 toxic asf beware
 
