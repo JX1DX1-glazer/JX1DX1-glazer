@@ -12,6 +12,12 @@ toxic asf beware
 
 would be really happy if u treated me as my source thanks
 
+vid by emarş_00 on tiktok
+
+https://github.com/user-attachments/assets/de698522-ed73-4b4c-a6cb-cd20ee6d09a3
+
+
+
 
 
 
