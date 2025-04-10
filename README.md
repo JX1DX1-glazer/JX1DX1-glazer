@@ -6,7 +6,7 @@
   <a href="https://en.pronouns.page/@gasa4">prns page</a>
 </p>
 
-hi im beren, cashier or any of the names in prnspage
+hi im sean, beren, cashier or any of the names in prnspage
 
 toxic asf beware
 
