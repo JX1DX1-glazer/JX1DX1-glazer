@@ -6,7 +6,11 @@
   <a href="https://en.pronouns.page/@gasa4">prns page</a>
 </p>
 
-hi im sean, beren, cashier or any of the names in prnspage
+honey i want you to take one good look at my fatass (/ref) and see if im gonna devorate this anytime soon
+
+i will be imactive during april 11 and april 14 because im at a camp
+
+anyway hi im sean, beren, cashier or any of the names in prnspage
 
 toxic asf beware
 
