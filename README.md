@@ -6,14 +6,7 @@
   <a href="https://en.pronouns.page/@gasa4">prns page</a>
 </p>
 
-
-
-
-https://github.com/user-attachments/assets/61f28b7f-7196-4bc0-9881-45e7f3794ff0
-
-
-
-
+https://github.com/user-attachments/assets/6632bd93-6ba5-47ce-8d2a-2d76d4c3bb74
 
 
 
