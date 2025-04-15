@@ -10,9 +10,7 @@
 
 
 https://github.com/user-attachments/assets/61f28b7f-7196-4bc0-9881-45e7f3794ff0
-<p align="center">
-  <video src="https://github.com/user-attachments/assets/61f28b7f-7196-4bc0-9881-45e7f3794ff0" width="500" controls></video>
-</p>
+
 
 
 
